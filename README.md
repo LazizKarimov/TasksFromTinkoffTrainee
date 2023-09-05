@@ -1,1 +1,6 @@
 # TasksFromTinkoffTrainee![photo_5458629749766212980_w](https://github.com/LazizKarimov/TasksFromTinkoffTrainee/assets/43858758/4e0d37b8-dc6c-4e2e-836b-01217b3885b5)
+![photo_5458629749766212992_w](https://github.com/LazizKarimov/TasksFromTinkoffTrainee/assets/43858758/42b6e4a6-5d80-4248-8dfa-8a4710bcad7f)
+![photo_5458629749766212991_w](https://github.com/LazizKarimov/TasksFromTinkoffTrainee/assets/43858758/f70d407f-5888-453b-9e86-216fd0eeea2c)
+![photo_5458629749766212990_w](https://github.com/LazizKarimov/TasksFromTinkoffTrainee/assets/43858758/175e7995-be72-4679-b15c-6475a3956d88)
+![photo_5458629749766212989_w](https://github.com/LazizKarimov/TasksFromTinkoffTrainee/assets/43858758/a0af73d2-17d3-486e-a068-ca11cdcf608d)
+![photo_5458629749766212981_w](https://github.com/LazizKarimov/TasksFromTinkoffTrainee/assets/43858758/47054e6d-4b99-449b-b2aa-6960667eb965)
